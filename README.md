@@ -1,0 +1,1 @@
+# Novatrend-store
